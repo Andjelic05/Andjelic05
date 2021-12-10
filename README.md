@@ -1,5 +1,5 @@
 - 👋 I’m Mihajlo Andjelic 😇
-- 👀 I’m interested in developing skill! 🙌
+- 👀 I’m interested in developing different skill! 🙌
 - 🪁 I’m currently learning programing languages! 🎱
 - 🤝 I’m looking to collaborate on useful activites. 🧶
 - 🤙 How to reach me: email: mihajlo12520@iths.edu.rs / mihajlo.mc14@gmail.com 📧
